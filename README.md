@@ -1,2 +1,0 @@
-# Sukanet
-oi idi nahui
